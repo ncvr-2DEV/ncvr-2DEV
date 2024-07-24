@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ncvr-2DEV leader of Maritime Mods.
+- 📫 You can ask question via Discord. (Username: "§€√∑∩   ⌈∑Ð   §∪∩§" (copy and paste))
+- 😄 Pronouns: he/him please. Any except she/her works.
+- ⚡ Fun fact: I Love Minecraft and Rain World.
