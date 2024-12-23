@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ncvr-2DEV leader of Maritime Mods.
+- 👋 Hi, I’m @ncvr-2DEV.
 - 📫 You can ask question via Discord. (Username: "baritonemj0" )
 - 😄 Pronouns: he/him please. Any except she/her works.
 - ⚡ Fun fact: I Love Minecraft and Rain World.
